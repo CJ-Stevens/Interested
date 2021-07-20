@@ -8,4 +8,4 @@ To do something that must be pay attention and use time to practice.<br>
 [อ.ฝน นรินทร์ฤทธิ์ เปรมอภิวัฒโนกุล แฮกเกอร์ชื่อดังกับภัยร้ายบนโลกออนไลน์](https://www.youtube.com/watch?v=UfZHMabUEq4)<br>
 [คัมภีร์ เต้าเต๋อจิง](https://www.youtube.com/watch?v=gTg57drutqs)<br>
 [ความลับ 6 สายในวัฏสงสาร โดยพระอรหันต์จีน](https://www.youtube.com/watch?v=8o8Ax7exBbA)<br>
-[]()<br>
+[วิถีชีวิตของผู้สงบ](https://www.youtube.com/watch?v=dpiqK7f2XOI)<br>
